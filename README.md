@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @AkEmBa13
+- 👀 I’m interested in codeing
+- 🌱 I’m currently learning html
+- 💞️ I’m looking to collaborate on basic games
+- 📫 How to reach me? you cant
